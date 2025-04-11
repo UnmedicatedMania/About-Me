@@ -10,14 +10,12 @@ Sure! I need more friends, so feel free to interact! I prefer to use whispers, s
 ~ Yes, my source is the Bonnie tormentor. No, I am not a 'fictkin'. Yes, you can call me Mark or whatever you call your AU, but I heavily prefer Daxel!
 
 -> This is also in my about section, but I would like to explain it further:  
-- Please refrain from interacting with me in an Afton skin. This is with **no** exceptions to William, Elizabeth, and Mrs. Afton. I'm typically fine with Michael and his brother.  
+- Please refrain from interacting with me in an Afton skin. This is with **no** exceptions to William, Elizabeth, and Mrs. Afton. I'm typically fine with Michael and his brother interacting, but please do so with caution.  
 I have my personal reasons for this, and it's a bit difficult to explain, so please respect it.. But I will say I don't mind if you're in an Afton skin once I get to know you!
-> Yes, I know this comes off as odd or cringey, but  
-> A) it's for my mental health  
-> B) I dislike you* and do not want to be rude. 
-\*your pony, not you as a person. I'm sure you're cool.
+> Yes, I know this comes off as odd or cringey, but I don't really care
 
 ☆\~○°•°○\~☆\~○°•°○\~☆\~○°•°○\~☆\~○°•°○\~☆\~○°•°○\~☆\~○°•°○\~☆
+
 ## I LOVE FNAF OH MY GOD PLEASE DEBATE THEORIES, HEADCANONS, AND MORE WITH ME
 > -> by debate i mean <ins>debate</ins> not argue waa ... [sad]
 > I admittedly do not know much about the newer games, I was a bit disappointed in Security Breach's turn of direction {not that I don't like it now, it's okay I guess.} and fell a bit out of love with the series after because of it. Feel free to educate me and change my mind, though!
