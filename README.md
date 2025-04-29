@@ -11,7 +11,7 @@ Sure! I need more friends, so feel free to interact! I prefer to use whispers, s
 
 -> This is also in my about section, but I would like to explain it further:  
 - Please refrain from interacting with me in an Afton skin. This is with **no** exceptions to William, Elizabeth, and Mrs. Afton. I'm typically fine with Michael and his brother interacting, but please do so with caution.  
-> no its not just about you lmao, hop off it /silly  
+> no its not just about you lmao, hop off it /dir /silly  
 I have my personal reasons for this, and it's a bit difficult to explain, so please respect it.. But I will say I don't mind if you're in an Afton skin once I get to know you!
 > Yes, I know this comes off as odd or cringey, but I don't really care
 
