@@ -11,6 +11,7 @@ Sure! I need more friends, so feel free to interact! I prefer to use whispers, s
 -> doubles iwc, system, fictionkin, otherwise, or just skins..
 > Yes, I know this comes off as odd or cringey, but I don't really care 🫰
 
+OH OH i have a strawpage under the same name,. uh unmedicatedmania.straw.page  . ., . that is
 ☆\~○°•°○\~☆\~○°•°○\~☆\~○°•°○\~☆\~○°•°○\~☆\~○°•°○\~☆\~○°•°○\~☆
 
 ## I LOVE FNAF OH MY GOD PLEASE DEBATE THEORIES, HEADCANONS, AND MORE WITH ME
